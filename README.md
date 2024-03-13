@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on projects involving Agile transformations, Scrum, SAFe, Spotify, LeSS, and hybrid Agile approaches. I’m also excited about initiatives that integrate AI into Agile practices.
 - 📫 How to reach me: Reach out to me on LinkedIn at www.linkedin.com/in/stefanovincenti or via email at stefano.vincenti@gmail.com.
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Outside of my professional interests, I am an enthusiast of new technologies and space tech. I enjoy sports like volleyball, skiing, snowboarding and weight training, which keep me energized and mentally balanced. A big fan of exploring new cultures and countries, I'm always ready for a new adventure or challenge.
+- ⚡ Fun fact: Outside of my professional interests, I enjoy sports like volleyball, skiing, snowboarding and weight training, which keep me energized and mentally balanced. A big fan of exploring new cultures and countries, I'm always ready for a new adventure or challenge.
 
 
